@@ -1,1 +1,1 @@
-# -希望大家把可以分享的知识分享出来，一同成长。
+# -I hope you can share the knowledge and grow together 。
